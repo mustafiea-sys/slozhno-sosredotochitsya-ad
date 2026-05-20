@@ -1,1 +1,1 @@
-https://github.com/SkromnayaDeffchonka/slozhno-sosredotochitsya-ad
+https://github.com/mustafiea-sys/slozhno-sosredotochitsya
